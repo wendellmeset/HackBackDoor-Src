@@ -1,3 +1,8 @@
+Why not fork leaked hb src cause funni
+Also bye.
+
+Original readme of leak:
+
 ### If you still think lllllllllllllIlllIllIIIllIIIllll is an error in the decompile/deobuscating its not you retarded piece of sh** and if you ask me again i will block you 
 
 
